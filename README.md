@@ -1,1 +1,0 @@
-# skanakdande.github.io
